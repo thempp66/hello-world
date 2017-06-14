@@ -1,6 +1,3 @@
 # hello-world
 
-fewfewagfewg
-ewggewg
-ewg
-ewgewgewgew
+Please forgive her!
